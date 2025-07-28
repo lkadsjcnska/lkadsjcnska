@@ -1,1 +1,1 @@
-~~*This people is lazy and doesn't write anything*~~
+~~*This people is very lazy and doesn't write anything*~~
